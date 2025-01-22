@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **DevOps, AI/ML**
 
-- 📫 How to reach me **sinhaanishkumar76@gmail.com**
+- 📫 How to reach me **sinhaanshkumar1@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1ieAIMhu45TogZ8h2BO30bidF36VOvRy3/view](https://drive.google.com/file/d/1ieAIMhu45TogZ8h2BO30bidF36VOvRy3/view)
 
